@@ -1,0 +1,1 @@
+The Los Angeles Dodgers colors HEX codes are #005A9C for Dodger blue, #EF3E42 for red, and #A5ACAF for silver
